@@ -1,0 +1,2 @@
+# Autoclickscirpt
+Q
